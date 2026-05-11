@@ -1,4 +1,4 @@
-
+Get the ultimate OneNote for macOS addon with rare Addon for OneNote for macOS - note encryption and AI assistant. Featuring note encryption and AI assistant, it's the best choice
 
 
 
